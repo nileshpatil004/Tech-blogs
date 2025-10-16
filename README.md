@@ -1,0 +1,1 @@
+Technology is changing our world every single day. From powerful smartphones to artificial intelligence, new innovations are shaping how we live, work, and connect. This blog is a space where I’ll share the latest trends, updates, tutorials, and insights from the tech world
